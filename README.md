@@ -1,16 +1,25 @@
-## Hi there 👋
+黑料正能量最新网站黑料不打烊app官网入口
 
-<!--
-**txgeb/txgeb** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+**<a href="http://www.baidu.com/link?url=7_xtFUWki7hexbSrF9U18DvNUoYAjH8P5i8sQYawypq&wd">→→最/新/观/看/入/口←←</a>**
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+但是在观众席上，大家的主流观点是，刘昴星完全是在装蒜，其实根本就是乱搞一气！
+
+    甚至连评委们，渐渐也对刘昴星失去了信心……
+
+    原因很简单，就在二十几分钟之前，刘昴星的烤全牛上，就已经散发出了焦糊的味道。
+
+    虽然八块加热板挡着，影影绰绰的看不真切，但是偶尔也能够瞥到，里面露出焦糊的痕迹……
+
+    “真是浪费，虽然a5级的肉已经剔除了，但是剩下的肉也有a4级啊！还是上等的神户牛的肉！”
+
+    “明知道是半成品的设备，还非要逞能使用……”
+
+    “焦糊之后居然还装作没事一样，继续在那里烤制，难道他想要将焦糊的肉呈递上去吗？”
+
+    “呵呵，不然还能怎么样？无论是时间还是食材，都已经不够了！”
+
+    “连能入口的料理都无法呈递，这样也算料理人吗？”
+
+    大家原本的“羡慕嫉妒恨”，终于有了倾泻的出口，久违的对刘昴星的嘲讽声，再次此起彼伏起来。
